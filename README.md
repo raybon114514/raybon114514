@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @raybon114514
 - 👀 I’m interested in try not to die
 - 🌱 I’m currently learning CSE
-- 📫 How to reach me: ig: raybon_sl
+- 📫 How to reach me: instagram: raybon_sl
 - ⚡ Fun fact: Im rikki's dog
 I like mygo and ave mujica and roselia
 My favorite song is FIRE BIRD by Roselia
